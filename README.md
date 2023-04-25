@@ -1,1 +1,1 @@
-# Activies
+# Activities
